@@ -3,6 +3,15 @@
 ## 真实反馈 - 骗子求饶大赏
 ![image text](https://s1.ax1x.com/2020/04/23/JdH0n1.jpg)
 
+<img src="https://wx2.sbimg.cn/2020/04/23/1.jpg" alt="1" border="0">
+<img src="https://wx2.sbimg.cn/2020/04/23/28c7118fc2d952bd9.jpg" alt="2" border="0">
+<img src="https://wx1.sbimg.cn/2020/04/23/3.jpg" alt="3" border="0">
+<img src="https://wx1.sbimg.cn/2020/04/23/4b0dbb35ec1004bf4.jpg" alt="4" border="0">
+<img src="https://wx2.sbimg.cn/2020/04/23/3471587619231_.pic_hd.jpg" alt="3471587619231 .pic hd" border="0">
+<img src="https://wx2.sbimg.cn/2020/04/23/3481587619232_.pic_hd.jpg" alt="3481587619232 .pic hd" border="0">
+<img src="https://wx1.sbimg.cn/2020/04/23/3491587619233_.pic_hd.jpg" alt="3491587619233 .pic hd" border="0">
+<img src="https://wx1.sbimg.cn/2020/04/23/3501587619234_.pic_hd.jpg" alt="3501587619234 .pic hd" border="0">
+
 ## 炸鸡简史
 
 可能大家不信，我其实是有正经职业的，收入还不低。
