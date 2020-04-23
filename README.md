@@ -1,5 +1,8 @@
 # 👉🏻👉🏻👉🏻[炸鸡网站:点此进入](http://hongz.kuaishuale.top/)👈👈👈🏻
 
+## 真实反馈 - 骗子求饶大赏
+![image text] (https://raw.githubusercontent.com/zuanredcape/zuanredcape.github.io/master/im/1.jpg)
+
 ## 炸鸡简史
 
 可能大家不信，我其实是有正经职业的，收入还不低。
