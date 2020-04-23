@@ -1,7 +1,7 @@
 # 👉🏻👉🏻👉🏻[炸鸡网站:点此进入](http://hongz.kuaishuale.top/)👈👈👈🏻
 
 ## 真实反馈 - 骗子求饶大赏
-![image text](https://github.com/zuanredcape/zuanredcape.github.io/blob/master/im/1.jpg)
+![image text](https://s1.ax1x.com/2020/04/23/JdH0n1.jpg)
 
 ## 炸鸡简史
 
