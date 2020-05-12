@@ -1,5 +1,5 @@
 ## 成功帮助17人，共计追回财产9万3千9百60元(截止2020年5月中，根据部分反馈得出)
-# 👉🏻👉🏻👉🏻[轰炸入口:点此进入](http://hongz.kuaishuale.top/)👈👈👈
+# 👉🏻👉🏻👉🏻[轰炸机:点此进入](http://hongz.kuaishuale.top/)👈👈👈
 
 ## 联系我 售前/售后/辅导追债话术
 老规矩，QQ2517083527 👉[一键唤醒qq和我聊天](http://wpa.qq.com/msgrd?v=3&uin=2517083527&site=qq&menu=yes)👈
